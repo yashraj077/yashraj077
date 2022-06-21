@@ -21,7 +21,7 @@
 
 🏢 I’m currently working in [Unthinkable Solutions](https://www.unthinkable.co/) as **DevOps Engineer**
 
-📫 You can reach me at **yashraj.dighe@unthinkable.co**
+📫 You can reach me at **yashraj45dighe@gmail.com**
 
 ⚡ Fun fact **We guys automate stuff**
 
